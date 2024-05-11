@@ -19,4 +19,4 @@ Characters and Appearance.
 - Sundance Kid
    :Sundance Kid is a tall man with dark blond hair. He appears to be in his early 40's.-  
 - Naoshi Kanno
-   : Wearing ww2 japanese airforce uniform and was riding a japanese war plane.
+   : Wearing ww2 japanese airforce uniform and was riding a japanese war plane
